@@ -1,3 +1,4 @@
+<img src="https://github.com/VyGTran/vytran/assets/113914464/62246e59-e2de-49d4-99f2-d9b6c69cf3d6">
 
 
 <h1 align="center">Hi 👋, I'm Vy Tran</h1>
